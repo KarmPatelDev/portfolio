@@ -1,1 +1,1 @@
-Link -: https://mrkarmpatel.github.io/portfolio/
+Link -: https://karmpateldev.github.io/portfolio/
